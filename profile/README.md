@@ -15,4 +15,5 @@
 Для юристов и коллекторов: liberty-debt.ru
 
 🍿 Fun facts - лучшие на рынке СНГ!!!
+
 🧙 Contacts: makeitdeal.development@yandex.ru
